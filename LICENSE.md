@@ -1,4 +1,4 @@
-
+life together rp secure Script is the best life together rp Script, featuring speed and no clip. Safe and powerful for all your needs.
 
 
 
